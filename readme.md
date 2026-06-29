@@ -6,4 +6,4 @@
 
 BEST LIST EVER
 
-###### sun is not a planet
+###### moon is not a planet
